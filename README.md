@@ -1,1 +1,1 @@
-![image](https://github.com/lngdao/lngdao/assets/88200574/3025ed80-d9bd-48a8-8f9b-603c37852b99)
+![image](https://github.com/lngdao/lngdao/assets/88200574/bff5baa0-1e9c-46cf-a55b-35a9e7dab7ec)
